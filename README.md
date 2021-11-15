@@ -1,1 +1,0 @@
-# simulasi-Branch-Ardelia
